@@ -6,4 +6,12 @@
 
 fafsdgit
 
-schimbarigit 
+schimbari
+
+
+
+eu sunt junior
+
+lalala
+
+blabla
